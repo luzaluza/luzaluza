@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @luzaluza
+- 👀 I’m interested in Minecraft
+- 🌱 I’m a student in the elementary school in Tokyo
